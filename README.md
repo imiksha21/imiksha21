@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...udtyu
 - 💞️ I’m looking to collaborate on ...2tryif aerf
-- 📫 How to reach me ...
+- 📫 How to reach me ... tyuytu k
  jytjdcdwhrt  htw5hos5u4sx
 <!---
 imiksha21/imiksha21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
