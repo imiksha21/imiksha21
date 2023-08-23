@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @imiksha21
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...udtyu
-- 💞️ I’m looking to collaborate on ...2tryif aerfser 
+- 💞️ I’m looking to collaborate on ...2tryif aerfser tiu l
 - 📫 How to reach me ... tyuytu ke rg
  jytjdcdwhrt  htw5hos5u4sx rthrt
 <!---
