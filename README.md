@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @imiksha21
 - 👀 I’m interested in ... rtk ytktyk hg
 - 🌱 I’m currently learning ...udtyuk rth 365w5 6hj
-- 💞️ I’m looking to collaborate on ...2tryif aerfser tiu l
+- 💞️ I’m looking to collaborate on ...2tryif aerfser tiu lh rtetrhtr hr
 - 📫 How to reach me ... tyuytu ke rg rth strhsr  krykryuuyg aeaeg earg
  jytjdcdwhrt  htw5hos5u4sx rthrtyu kfyuf ewewf few tewr
 <!---
